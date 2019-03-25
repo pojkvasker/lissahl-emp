@@ -3,7 +3,7 @@ ElektroMekaniskt Projekt
 
 DJ Khaled!
 
-Frankrike
+frankrike
 
 
 Eller så har vi faktiskt Tyskland!!!!
